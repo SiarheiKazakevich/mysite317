@@ -1,1 +1,1 @@
-https://SiarheiKazakevich.github.io/mysite317/
+https://SiarheiKazakevich.github.io/sitesForMe/mysite317/
